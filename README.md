@@ -1,2 +1,0 @@
-# WHATTHEFUCK
-i like fucking
